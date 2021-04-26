@@ -3,6 +3,7 @@
 ## Contact Info
 - Tel.: +375298041981
 - Telegram: @yaromchikV
+- Email: vladislav.yaromchik@gmail.com
 
 ## Summary
 I am a self-motivated person with a great enthusiasm for learning. I am eager to grow and improve my IT and social skills. My current goal is to apply the acquired skills, working with a team of specialists.
